@@ -14,14 +14,14 @@
 ## 🌍 Languages
 - 🗣️ **English** 🇺🇸: Professional (Education)  
 - 🗣️ **Chinese** 🇨🇳: HSK3  
-- 🗣️ **German** 🇩🇪: Introductory  
+- 🗣️ **German** 🇩🇪: Basic
 - ☪️ **Urdu** 🇵🇰: Native  
 ---
 
 ## 🎯 Interests
 - 📚 **Reading**: Philosophy, History, Data Analysis  
 - ✈️ **Traveling**: Exploring new places and cultures  
-- 🌱 **Phenotyping and Genotyping**: Passion for understanding genetic traits  
+- 🌱 **Cricket**: 
 
 ---
 
