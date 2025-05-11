@@ -21,7 +21,7 @@
 ## 🎯 Interests
 - 📚 **Reading**: Philosophy, History, Data Analysis  
 - ✈️ **Traveling**: Exploring new places and cultures  
-- 🌱 **Cricket**: 
+- 🏏 **Cricket**: 
 
 ---
 
