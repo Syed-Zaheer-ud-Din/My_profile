@@ -13,7 +13,7 @@
 
 ## 🌍 Languages
 - 🗣️ **English** 🇺🇸: Professional (Education)  
-- 🇨🇳 **Chinese** 🇨🇳: HSK3  
+- 🧧 **Chinese** 🇨🇳: HSK3  
 - 🗣️ **German** 🇩🇪: Basic
 - ☪️ **Urdu** 🇵🇰: Native  
 ---
