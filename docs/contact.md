@@ -2,8 +2,8 @@
 
 📫 Feel free to reach out to me through the following channels:
 
-Syed Zaheer ud Din, Ph.D. Candidate  
-Wulab, University of Science and Technology of China  
+Syed Zaheer ud Din,  
+University of Science and Technology of China  
 96 Jinzhai Road, Baohe District, Hefei, Anhui, China, 230026  
 
 **Phone:**                          

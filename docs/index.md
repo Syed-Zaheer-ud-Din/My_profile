@@ -31,7 +31,7 @@ Connect with me on these platforms:
 ---
 
 **Syed Zaheer ud Din**  
-Ph.D. Candidate, WU-Lab  
+Research fellow 
 Department of Life Sciences and Medicine  
 University of Science and Technology of China (USTC)  
 96 Jinzhai Road, Baohe District  

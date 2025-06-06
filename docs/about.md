@@ -1,6 +1,6 @@
 # About Me
 
-👋 Hi there! I am a PhD student at the University of Science and Technology China, driven by a deep passion for **evolutionary biology**. My academic journey has been enriched by hands-on experience in diverse fields, including:
+👋 Hi there! I am a Researcher at the University of Science and Technology China, driven by a deep passion for **evolutionary Genetics**. My academic journey has been enriched by hands-on experience in diverse fields, including:
 
 - 🧬 **Evo-Devo** (Evolutionary Developmental Biology)  
 - 🧪 **Genetics**  
